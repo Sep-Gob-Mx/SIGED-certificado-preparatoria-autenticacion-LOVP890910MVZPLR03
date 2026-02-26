@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOVP890910MVZPLR03
+LOVP890910MVZPLR03
